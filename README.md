@@ -13,3 +13,4 @@ Good day, its my pleasure to be going through this journey with M4ACE. My is Emm
 07- Hello Everyone, My name is KudiratIjeoma Ibeabuchi. I am happy to be learning with you all
 
 08- Hello, My name is Habeeb Ogundele. I'm glad to be here and open to learn from our Mentors and my other Mentees
+Hello, I'm Isaiah, it's nice to meet you and hope to have a great time learning and working with you all.
