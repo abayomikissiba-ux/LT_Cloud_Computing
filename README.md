@@ -6,4 +6,4 @@
 
 04- I Ayabavi Eclou is super proud to be a part of this community, I am gradually conquering my fears.
 
-05- Solomon Victor by name, it's pleasure to be here.
+05- Solomon Victor by name, it's a pleasure to be here.
