@@ -11,3 +11,5 @@ Good day, its my pleasure to be going through this journey with M4ACE. My is Emm
 06- Karalolo Benedict Berabari-Age is my name. it is a pleasure to meet and collaborate with you guys.
 
 07- Hello Everyone, My name is KudiratIjeoma Ibeabuchi. I am happy to be learning with you all
+
+08- Hello, My name is Habeeb Ogundele. I'm glad to be here and open to learn from our Mentors and my other Mentees
