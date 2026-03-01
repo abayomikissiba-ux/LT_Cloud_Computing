@@ -1,4 +1,4 @@
-01- Hi this is Marycynthia, nice to meet you all
+Good day, its my pleasure to be going through this journey with M4ACE. My is Emmanuel Aduloju 01- Hi this is Marycynthia, nice to meet you all
 
 02- I am Umeh Paul a Cloud computing mentee, i hope we have a good collaboration!
 
