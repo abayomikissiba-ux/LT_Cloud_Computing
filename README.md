@@ -7,3 +7,5 @@ Good day, its my pleasure to be going through this journey with M4ACE. My is Emm
 04- I Ayabavi Eclou is super proud to be a part of this community, I am gradually conquering my fears.
 
 05- Solomon Victor by name, it's a pleasure to be here.
+
+06- Karalolo Benedict Berabari-Age is my name. it is a pleasure to meet and collaborate with you guys.
